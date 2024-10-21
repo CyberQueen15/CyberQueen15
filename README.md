@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CyberQueen15
 - 👀 I’m interested in Cybersecurity and Information Assurance
-- 🌱 I’m currently learning Cybersecurity
+- 🌱 I’m currently learning Cybersecurity and Information Assurance
 - 📫 How to reach me ecar499@wgu.edu
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I graduated from High School at 14
