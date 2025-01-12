@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CyberQueen15
-- 👀 I’m interested in Cybersecurity and Information Assurance
+- 👀 I’m currently pursuing my major in Cybersecurity and Information Assurance
 - 🌱 I’m currently learning Cybersecurity and Information Assurance
 - 📫 How to reach me ecar499@wgu.edu
 - 😄 Pronouns: She/Her
